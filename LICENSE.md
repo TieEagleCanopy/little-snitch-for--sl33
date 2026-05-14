@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Little Snitch for macOS integration with ultimate Little Snitch for macOS Integration | credit-card-storage + safe-browsing. Featuring credit-card-storage and
 
 
 
